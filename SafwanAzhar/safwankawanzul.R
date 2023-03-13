@@ -1,1 +1,0 @@
-Saya pula kawan zul
